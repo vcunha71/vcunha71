@@ -9,7 +9,7 @@
 
 - 👨‍💻 Linkedin [https://www.linkedin.com/in/vitor-cunha/](https://www.linkedin.com/in/vitor-cunha/)
 
-- 📝 Instagram [https://www.instagram.com/vscdata/](https://www.instagram.com/vscdata/)
+- 📝 Instagram [https://www.instagram.com/vscdata/]([https://www.instagram.com/vscdata/](https://www.instagram.com/ovitorscout/)
 
 - 📫 How to reach me **vcunha71@gmail.com**
 
